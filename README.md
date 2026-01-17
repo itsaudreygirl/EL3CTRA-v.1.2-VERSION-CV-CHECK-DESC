@@ -5,7 +5,7 @@ USER LISCENCE AGREEMENT
 Here are the rules of using my UTAU.
 1-DO NOT use this UTAU to mention hate, or support racism, s#x or anything NSFW related, hateful or shameful. If I find out someone breaks any rules with my UTAU, I will disable all installations of the UTAU, so please, use it wisely.
 
-2- When posting the cover or song, DO NOT claim that the UTAU is yours, and credit me, the person who made it. The vocals is Google Translate though, but Google doesn't care, thats one thing i know. If you forget to credit, or dont at all, just dont say the UTAU is yours.
+2- When posting the cover or song, DO NOT claim that the UTAU is yours, and credit me, the person who made it. If you forget to credit, or dont at all, just dont say the UTAU is yours.
 
 3- I highly discourage and will not allow you to edit the whole UTAU character, and do not use it off of this voicebank.
 
